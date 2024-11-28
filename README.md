@@ -1,4 +1,8 @@
-## Hi there 👋
+## Howdy 👋🤠
+
+- just a girl trying to get into the ✨tech world✨ 👩🏻‍💻
+- i like movies🎞️, anime📺 and video games🎮 just as much as the next person
+- oh and i also like to climb plastic rocks 🧗🏻‍♀️
 
 <!--
 **jenjim307/jenjim307** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
